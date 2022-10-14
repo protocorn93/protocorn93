@@ -5,7 +5,7 @@ I'm working in [Karrot](https://github.com/daangn)! :carrot:
 
 - [모바일플랫폼에 진심인 iOS 엔지니어로 성장하러 가기 👍](https://team.daangn.com/jobs/5282170003/)
 - [디자인시스템에 진심인 iOS 엔지니어로 성장하러 가기 👍](https://team.daangn.com/jobs/5296539003/)
-- [망설이시고 계신가요? 티타임 환영해요!](https://www.linkedin.com/in/sungwoon-p-98894b87/)
+- [망설이시고 계신가요? 티타임 환영해요!](https://www.linkedin.com/in/donggunlee-23b706105/)
 
 ---
 <br />
